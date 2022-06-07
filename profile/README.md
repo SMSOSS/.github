@@ -11,3 +11,5 @@ We're SMSOSS. We do cool stuff in our free time.
 ### Get in touch with us. ###
 - [e-Mail](mailto://sms24069@stmarks.edu.hk) us.
 - View our website. 
+
+Feel free to mess around. Oh, and, enjoy your stay.
